@@ -52,4 +52,4 @@ Estamos abertos a contribuições! Se você deseja colaborar com o projeto, por 
 
 ## Contato
 
-Para mais informações, entre em contato conosco pelo e-mail: contato@lojavirtualdescentralizada.com
+Para mais informações, entre em contato conosco pelo e-mail: thiagodedeusjacom.td1@gmail.com
